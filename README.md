@@ -1,0 +1,2 @@
+# UCL-INTERNATIONAL-POLITICAL-ECONOMY
+Slides for the my IPE class at UCL
